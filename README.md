@@ -1,0 +1,1 @@
+Hi, I'm WillyNevesBR, I have a degree in Systems Development, but I've never worked in the area, after a decade, I'm studying again, and I hope this time to focus and learn more and more. And enter the technology market.
